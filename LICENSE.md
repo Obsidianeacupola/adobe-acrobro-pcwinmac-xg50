@@ -1,4 +1,4 @@
-# 
+# Secure Adobe Acrobat Pro extensions for Mac OS | New Adobe Acrobat Pro extensions for PC Windows. Featuring refund estimation and mobile apps — optimized for maximum performance on every platform.
 
 
 
